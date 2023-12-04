@@ -1,58 +1,58 @@
+
 <!doctype html>
 <html class="no-js" lang="en">
   <head>
     <meta charset="utf-8">
     <meta http-equiv="X-UA-Compatible" content="IE=edge">
     <meta name="viewport" content="width=device-width,initial-scale=1">
-    <link rel="amphtml" href="https://adm-stiabagasasi.ac.id/seomessparty/amp/demo-unbi.html">
     <meta name="theme-color" content="">
-    <link rel="canonical" href="http://psikologi.unbi.ac.id/uploads/img/"><link rel="preconnect" href="https://fonts.shopifycdn.com" crossorigin><title>
-      Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar
- &ndash; SLOT DEMO GRATIS</title>
+    <link rel="canonical" href="https://wonosobo.bawaslu.go.id/modules/sales/"><link rel="preconnect" href="https://fonts.shopifycdn.com" crossorigin><title>
+      Lapak Gaming Live Games Situs Casino Online Terpercaya 2023
+ &ndash; LIVE GAMES</title>
 
     
-      <meta name="description" content="Hadirnya akun slot demo zeus pada saat ini sangat membantu para sloter mania dalam bermain karena sudah terbukti gratis dan 4 juta member terdaftar.">
+      <meta name="description" content="Kami adalah lapak gaming live yang terpercaya pada saat ini karena situs casino online yang diberikan sangatlah terjamin &amp;amp; aman di tahun 2023 maka para bettor mania banyak join.">
     
 
-    
-<meta name="google-site-verification" content="kg_FJRag932m6hIJP1tbLk0lhczTyWLpBZGHqB7dozo" />
-<meta property="og:site_name" content="SLOT DEMO GRATIS">
-<meta property="og:url" content="http://psikologi.unbi.ac.id/uploads/img/">
-<meta property="og:title" content="Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar">
+<link rel="amphtml" href="https://pub-708c0c35a6284cd19371f623e9b1cacf.r2.dev/amp-slot-gacor.html">    
+<meta name="google-site-verification" content="Y2ROWiVRofAW9C_-pRhoTScVgrvugpx4bvTSo6f7lfg" />
+<meta property="og:site_name" content="LIVE GAMES">
+<meta property="og:url" content="https://wonosobo.bawaslu.go.id/modules/sales/">
+<meta property="og:title" content="Lapak Gaming Live Games Situs Casino Online Terpercaya 2023">
 <meta property="og:type" content="product">
-<meta property="og:description" content="Hadirnya akun slot demo zeus pada saat ini sangat membantu para sloter mania dalam bermain karena sudah terbukti gratis dan 4 juta member terdaftar."><meta property="og:image" content="http://daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575">
-  <meta property="og:image:secure_url" content="https://daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575">
-  <meta property="og:image:width" content="1280">
-  <meta property="og:image:height" content="720"><meta property="og:price:amount" content="17.500,00">
+<meta property="og:description" content="Kami adalah lapak gaming live yang terpercaya pada saat ini karena situs casino online yang diberikan sangatlah terjamin &amp;amp; aman di tahun 2023 maka para bettor mania banyak join."><meta property="og:image" content="http://casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351">
+  <meta property="og:image:secure_url" content="https://casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351">
+  <meta property="og:image:width" content="290">
+  <meta property="og:image:height" content="174"><meta property="og:price:amount" content="15.000,00">
   <meta property="og:price:currency" content="IDR"><meta name="twitter:card" content="summary_large_image">
-<meta name="twitter:title" content="Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar">
-<meta name="twitter:description" content="Hadirnya akun slot demo zeus pada saat ini sangat membantu para sloter mania dalam bermain karena sudah terbukti gratis dan 4 juta member terdaftar.">
+<meta name="twitter:title" content="Lapak Gaming Live Games Situs Casino Online Terpercaya 2023">
+<meta name="twitter:description" content="Kami adalah lapak gaming live yang terpercaya pada saat ini karena situs casino online yang diberikan sangatlah terjamin &amp;amp; aman di tahun 2023 maka para bettor mania banyak join.">
 
 
-    <script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/constants.js?v=58251544750838685771701595476" defer="defer"></script>
-    <script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/pubsub.js?v=158357773527763999511701595477" defer="defer"></script>
-    <script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/global.js?v=113367515774722599301701595476" defer="defer"></script><script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/animations.js?v=88693664871331136111701595475" defer="defer"></script><script>window.performance && window.performance.mark && window.performance.mark('shopify.content_for_header.start');</script><meta id="shopify-digital-wallet" name="shopify-digital-wallet" content="/84769308976/digital_wallets/dialog">
-<link rel="alternate" type="application/json+oembed" href="http://psikologi.unbi.ac.id/uploads/img/.oembed">
-<script async="async" src="/checkouts/internal/preloads.js?locale=en-ID"></script><script id="shopify-features" type="application/json">{"accessToken":"ccf3f27415e9b05bfbae478cafa8d9a2","betas":["rich-media-storefront-analytics"],"domain":"daftar-member.lundhumphries.com","predictiveSearch":true,"shopId":84769308976,"smart_payment_buttons_url":"https:\/\/daftar-member.lundhumphries.com\/cdn\/shopifycloud\/payment-sheet\/assets\/latest\/spb.en.js","dynamic_checkout_cart_url":"https:\/\/daftar-member.lundhumphries.com\/cdn\/shopifycloud\/payment-sheet\/assets\/latest\/dynamic-checkout-cart.en.js","locale":"en","optimusEnabled":true,"optimusHidden":false,"betterDynamicCheckoutRecommendationVariant":"control","shopPromisePDPV3Enabled":false}</script>
+    <script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/constants.js?v=58251544750838685771701696094" defer="defer"></script>
+    <script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/pubsub.js?v=158357773527763999511701696095" defer="defer"></script>
+    <script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/global.js?v=113367515774722599301701696095" defer="defer"></script><script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/animations.js?v=88693664871331136111701696093" defer="defer"></script><script>window.performance && window.performance.mark && window.performance.mark('shopify.content_for_header.start');</script><meta id="shopify-digital-wallet" name="shopify-digital-wallet" content="/67197370595/digital_wallets/dialog">
+<link rel="alternate" type="application/json+oembed" href="https://wonosobo.bawaslu.go.id/modules/sales/.oembed">
+<script async="async" src="/checkouts/internal/preloads.js?locale=en-ID"></script><script id="shopify-features" type="application/json">{"accessToken":"ba04427a6d63cb672a9bb2e5fdb4b6cc","betas":["rich-media-storefront-analytics"],"domain":"casino.online.stoelzle-lausitz.com","predictiveSearch":true,"shopId":67197370595,"smart_payment_buttons_url":"https:\/\/casino.online.stoelzle-lausitz.com\/cdn\/shopifycloud\/payment-sheet\/assets\/latest\/spb.en.js","dynamic_checkout_cart_url":"https:\/\/casino.online.stoelzle-lausitz.com\/cdn\/shopifycloud\/payment-sheet\/assets\/latest\/dynamic-checkout-cart.en.js","locale":"en","optimusEnabled":true,"optimusHidden":false,"betterDynamicCheckoutRecommendationVariant":"control","shopPromisePDPV3Enabled":false}</script>
 <script>var Shopify = Shopify || {};
-Shopify.shop = "5798ee-4.myshopify.com";
+Shopify.shop = "ebf278-3.myshopify.com";
 Shopify.locale = "en";
 Shopify.currency = {"active":"IDR","rate":"1.0"};
 Shopify.country = "ID";
-Shopify.theme = {"name":"Refresh","id":163300966704,"theme_store_id":1567,"role":"main"};
+Shopify.theme = {"name":"Refresh","id":137612067043,"theme_store_id":1567,"role":"main"};
 Shopify.theme.handle = "null";
 Shopify.theme.style = {"id":null,"handle":null};
-Shopify.cdnHost = "daftar-member.lundhumphries.com/cdn";
+Shopify.cdnHost = "casino.online.stoelzle-lausitz.com/cdn";
 Shopify.routes = Shopify.routes || {};
 Shopify.routes.root = "/";</script>
 <script type="module">!function(o){(o.Shopify=o.Shopify||{}).modules=!0}(window);</script>
 <script>!function(o){function n(){var o=[];function n(){o.push(Array.prototype.slice.apply(arguments))}return n.q=o,n}var t=o.Shopify=o.Shopify||{};t.loadFeatures=n(),t.autoloadFeatures=n()}(window);</script>
-<script id="__st">var __st={"a":84769308976,"offset":25200,"reqid":"ac0bb087-5729-4272-8339-02f9af5ec96d","pageurl":"daftar-member.lundhumphries.com\/products\/akun-slot","u":"b3210894efe3","p":"product","rtyp":"product","rid":8864088490288};</script>
+<script id="__st">var __st={"a":67197370595,"offset":25200,"reqid":"fc5a77e8-1e67-45bb-bf9b-9f4daa1b6685","pageurl":"casino.online.stoelzle-lausitz.com\/products\/lapak-gaming","u":"72bbf6405bd4","p":"product","rtyp":"product","rid":8216329781475};</script>
 <script>window.ShopifyPaypalV4VisibilityTracking = true;</script>
 <script>!function(o){o.addEventListener("DOMContentLoaded",function(){window.Shopify=window.Shopify||{},window.Shopify.recaptchaV3=window.Shopify.recaptchaV3||{siteKey:"6LcCR2cUAAAAANS1Gpq_mDIJ2pQuJphsSQaUEuc9"};var t=['form[action*="/contact"] input[name="form_type"][value="contact"]','form[action*="/comments"] input[name="form_type"][value="new_comment"]','form[action*="/account"] input[name="form_type"][value="customer_login"]','form[action*="/account"] input[name="form_type"][value="recover_customer_password"]','form[action*="/account"] input[name="form_type"][value="create_customer"]','form[action*="/contact"] input[name="form_type"][value="customer"]'].join(",");function n(e){e=e.target;null==e||null!=(e=function e(t,n){if(null==t.parentElement)return null;if("FORM"!=t.parentElement.tagName)return e(t.parentElement,n);for(var o=t.parentElement.action,r=0;r<n.length;r++)if(-1!==o.indexOf(n[r]))return t.parentElement;return null}(e,["/contact","/comments","/account"]))&&null!=e.querySelector(t)&&((e=o.createElement("script")).setAttribute("src","https://cdn.shopify.com/shopifycloud/storefront-recaptcha-v3/v0.6/index.js"),o.body.appendChild(e),o.removeEventListener("focus",n,!0),o.removeEventListener("change",n,!0),o.removeEventListener("click",n,!0))}o.addEventListener("click",n,!0),o.addEventListener("change",n,!0),o.addEventListener("focus",n,!0)})}(document);</script>
-<script integrity="sha256-h4dvokWvGcvRSqiG7VnGqoonxF0k3NeoHPLSMjUGIz4=" data-source-attribution="shopify.loadfeatures" defer="defer" src="//daftar-member.lundhumphries.com/cdn/shopifycloud/shopify/assets/storefront/load_feature-87876fa245af19cbd14aa886ed59c6aa8a27c45d24dcd7a81cf2d2323506233e.js" crossorigin="anonymous"></script>
-<script integrity="sha256-HAs5a9TQVLlKuuHrahvWuke+s1UlxXohfHeoYv8G2D8=" data-source-attribution="shopify.dynamic-checkout" defer="defer" src="//daftar-member.lundhumphries.com/cdn/shopifycloud/shopify/assets/storefront/features-1c0b396bd4d054b94abae1eb6a1bd6ba47beb35525c57a217c77a862ff06d83f.js" crossorigin="anonymous"></script>
-<script id="sections-script" data-sections="header" defer="defer" src="//daftar-member.lundhumphries.com/cdn/shop/t/2/compiled_assets/scripts.js?7"></script>
+<script integrity="sha256-h4dvokWvGcvRSqiG7VnGqoonxF0k3NeoHPLSMjUGIz4=" data-source-attribution="shopify.loadfeatures" defer="defer" src="//casino.online.stoelzle-lausitz.com/cdn/shopifycloud/shopify/assets/storefront/load_feature-87876fa245af19cbd14aa886ed59c6aa8a27c45d24dcd7a81cf2d2323506233e.js" crossorigin="anonymous"></script>
+<script integrity="sha256-HAs5a9TQVLlKuuHrahvWuke+s1UlxXohfHeoYv8G2D8=" data-source-attribution="shopify.dynamic-checkout" defer="defer" src="//casino.online.stoelzle-lausitz.com/cdn/shopifycloud/shopify/assets/storefront/features-1c0b396bd4d054b94abae1eb6a1bd6ba47beb35525c57a217c77a862ff06d83f.js" crossorigin="anonymous"></script>
+<script id="sections-script" data-sections="header" defer="defer" src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/compiled_assets/scripts.js?5"></script>
 <style id="shopify-dynamic-checkout">.shopify-payment-button__button--hidden {
   visibility: hidden;
 }
@@ -199,8 +199,8 @@ Shopify.routes.root = "/";</script>
   font-weight: 400;
   font-style: normal;
   font-display: swap;
-  src: url("//daftar-member.lundhumphries.com/cdn/fonts/questrial/questrial_n4.0ba6d2b6094954bab23732c75d3ecb4c47a5869c.woff2?h1=NTc5OGVlLTQuYWNjb3VudC5teXNob3BpZnkuY29t&h2=ZGFmdGFyLW1lbWJlci5sdW5kaHVtcGhyaWVzLmNvbQ&hmac=228f09bf15429f15dc48744552e6ba0807309edf49f0b95a924e3e1a72e7b33f") format("woff2"),
-       url("//daftar-member.lundhumphries.com/cdn/fonts/questrial/questrial_n4.5abce10d8846bb9326c9741eaffed9667c847692.woff?h1=NTc5OGVlLTQuYWNjb3VudC5teXNob3BpZnkuY29t&h2=ZGFmdGFyLW1lbWJlci5sdW5kaHVtcGhyaWVzLmNvbQ&hmac=d814e7e31993c614ca99dc8aeebe8560be24fbb4c79e6656d09f60bb17753db9") format("woff");
+  src: url("//casino.online.stoelzle-lausitz.com/cdn/fonts/questrial/questrial_n4.0ba6d2b6094954bab23732c75d3ecb4c47a5869c.woff2?h1=ZWJmMjc4LTMuYWNjb3VudC5teXNob3BpZnkuY29t&h2=Y2FzaW5vLm9ubGluZS5zdG9lbHpsZS1sYXVzaXR6LmNvbQ&hmac=c1db463902603086dda339618d60c750fb34e69e8713c7f7514793369b1e679a") format("woff2"),
+       url("//casino.online.stoelzle-lausitz.com/cdn/fonts/questrial/questrial_n4.5abce10d8846bb9326c9741eaffed9667c847692.woff?h1=ZWJmMjc4LTMuYWNjb3VudC5teXNob3BpZnkuY29t&h2=Y2FzaW5vLm9ubGluZS5zdG9lbHpsZS1sYXVzaXR6LmNvbQ&hmac=bcfee158b7d57bd6ae3932280a3f7bd58db22e1782898e8924a31966f67a3037") format("woff");
 }
 
       
@@ -211,8 +211,8 @@ Shopify.routes.root = "/";</script>
   font-weight: 700;
   font-style: normal;
   font-display: swap;
-  src: url("//daftar-member.lundhumphries.com/cdn/fonts/archivo/archivo_n7.6f363ab30b12ea00d5e6243ed0e977a11393a3ad.woff2?h1=NTc5OGVlLTQuYWNjb3VudC5teXNob3BpZnkuY29t&h2=ZGFmdGFyLW1lbWJlci5sdW5kaHVtcGhyaWVzLmNvbQ&hmac=6aeebd7674875bbda0b97eb3ec88ea2f86778da12dd2f50e51045fb30785ac9d") format("woff2"),
-       url("//daftar-member.lundhumphries.com/cdn/fonts/archivo/archivo_n7.846b40a5735bbd149ad44b083a19c3e5d88d8fab.woff?h1=NTc5OGVlLTQuYWNjb3VudC5teXNob3BpZnkuY29t&h2=ZGFmdGFyLW1lbWJlci5sdW5kaHVtcGhyaWVzLmNvbQ&hmac=aa96bc5b464917a57d39bbfae1a0f29b74b9c72ab547384a783e18fe352110ea") format("woff");
+  src: url("//casino.online.stoelzle-lausitz.com/cdn/fonts/archivo/archivo_n7.6f363ab30b12ea00d5e6243ed0e977a11393a3ad.woff2?h1=ZWJmMjc4LTMuYWNjb3VudC5teXNob3BpZnkuY29t&h2=Y2FzaW5vLm9ubGluZS5zdG9lbHpsZS1sYXVzaXR6LmNvbQ&hmac=6bbd148be05ef22334063a92d0dbfdb3fd71881333d2139acdd9a48d4cedae14") format("woff2"),
+       url("//casino.online.stoelzle-lausitz.com/cdn/fonts/archivo/archivo_n7.846b40a5735bbd149ad44b083a19c3e5d88d8fab.woff?h1=ZWJmMjc4LTMuYWNjb3VudC5teXNob3BpZnkuY29t&h2=Y2FzaW5vLm9ubGluZS5zdG9lbHpsZS1sYXVzaXR6LmNvbQ&hmac=a60ddbe3ebb81a19cad3e76095fc47f83041f096c3ddcab0368c0c07e7683399") format("woff");
 }
 
 
@@ -244,7 +244,7 @@ Shopify.routes.root = "/";</script>
         .color-background-2 {
           --color-background: 255,255,255;
         
-          --gradient-background: #ffffff;
+          --gradient-background: #FFFFFF;
         
 
         
@@ -265,25 +265,25 @@ Shopify.routes.root = "/";</script>
       
         
         .color-inverse {
-          --color-background: 0,0,0;
+          --color-background: 14,27,77;
         
-          --gradient-background: #000000;
+          --gradient-background: #0e1b4d;
         
 
         
 
         --color-foreground: 255,255,255;
-        --color-background-contrast: 128,128,128;
+        --color-background-contrast: 18,35,99;
         --color-shadow: 14,27,77;
         --color-button: 255,255,255;
         --color-button-text: 14,27,77;
-        --color-secondary-button: 0,0,0;
+        --color-secondary-button: 14,27,77;
         --color-secondary-button-text: 255,255,255;
         --color-link: 255,255,255;
         --color-badge-foreground: 255,255,255;
-        --color-badge-background: 0,0,0;
+        --color-badge-background: 14,27,77;
         --color-badge-border: 255,255,255;
-        --payment-terms-background-color: rgb(0 0 0);
+        --payment-terms-background-color: rgb(14 27 77);
       }
       
         
@@ -313,7 +313,7 @@ Shopify.routes.root = "/";</script>
         .color-accent-2 {
           --color-background: 227,36,2;
         
-          --gradient-background: #e32402;
+          --gradient-background: #E32402;
         
 
         
@@ -494,10 +494,10 @@ Shopify.routes.root = "/";</script>
       }
     </style>
 
-    <link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/base.css?v=127867003511637661291701595475" rel="stylesheet" type="text/css" media="all" />
-<link rel="preload" as="font" href="//daftar-member.lundhumphries.com/cdn/fonts/questrial/questrial_n4.0ba6d2b6094954bab23732c75d3ecb4c47a5869c.woff2?h1=NTc5OGVlLTQuYWNjb3VudC5teXNob3BpZnkuY29t&h2=ZGFmdGFyLW1lbWJlci5sdW5kaHVtcGhyaWVzLmNvbQ&hmac=228f09bf15429f15dc48744552e6ba0807309edf49f0b95a924e3e1a72e7b33f" type="font/woff2" crossorigin><link rel="preload" as="font" href="//daftar-member.lundhumphries.com/cdn/fonts/archivo/archivo_n7.6f363ab30b12ea00d5e6243ed0e977a11393a3ad.woff2?h1=NTc5OGVlLTQuYWNjb3VudC5teXNob3BpZnkuY29t&h2=ZGFmdGFyLW1lbWJlci5sdW5kaHVtcGhyaWVzLmNvbQ&hmac=6aeebd7674875bbda0b97eb3ec88ea2f86778da12dd2f50e51045fb30785ac9d" type="font/woff2" crossorigin><link
+    <link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/base.css?v=127867003511637661291701696093" rel="stylesheet" type="text/css" media="all" />
+<link rel="preload" as="font" href="//casino.online.stoelzle-lausitz.com/cdn/fonts/questrial/questrial_n4.0ba6d2b6094954bab23732c75d3ecb4c47a5869c.woff2?h1=ZWJmMjc4LTMuYWNjb3VudC5teXNob3BpZnkuY29t&h2=Y2FzaW5vLm9ubGluZS5zdG9lbHpsZS1sYXVzaXR6LmNvbQ&hmac=c1db463902603086dda339618d60c750fb34e69e8713c7f7514793369b1e679a" type="font/woff2" crossorigin><link rel="preload" as="font" href="//casino.online.stoelzle-lausitz.com/cdn/fonts/archivo/archivo_n7.6f363ab30b12ea00d5e6243ed0e977a11393a3ad.woff2?h1=ZWJmMjc4LTMuYWNjb3VudC5teXNob3BpZnkuY29t&h2=Y2FzaW5vLm9ubGluZS5zdG9lbHpsZS1sYXVzaXR6LmNvbQ&hmac=6bbd148be05ef22334063a92d0dbfdb3fd71881333d2139acdd9a48d4cedae14" type="font/woff2" crossorigin><link
         rel="stylesheet"
-        href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-predictive-search.css?v=118923337488134913561701595476"
+        href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-predictive-search.css?v=118923337488134913561701696094"
         media="print"
         onload="this.media='all'"
       ><script>
@@ -507,11 +507,11 @@ Shopify.routes.root = "/";</script>
       }
     </script>
   <link href="https://monorail-edge.shopifysvc.com" rel="dns-prefetch">
-<script>(function(){if ("sendBeacon" in navigator && "performance" in window) {var session_token = document.cookie.match(/_shopify_s=([^;]*)/);function handle_abandonment_event(e) {var entries = performance.getEntries().filter(function(entry) {return /monorail-edge.shopifysvc.com/.test(entry.name);});if (!window.abandonment_tracked && entries.length === 0) {window.abandonment_tracked = true;var currentMs = Date.now();var navigation_start = performance.timing.navigationStart;var payload = {shop_id: 84769308976,url: window.location.href,navigation_start,duration: currentMs - navigation_start,session_token: session_token && session_token.length === 2 ? session_token[1] : "",page_type: "product"};window.navigator.sendBeacon("https://monorail-edge.shopifysvc.com/v1/produce", JSON.stringify({schema_id: "online_store_buyer_site_abandonment/1.1",payload: payload,metadata: {event_created_at_ms: currentMs,event_sent_at_ms: currentMs}}));}}window.addEventListener('pagehide', handle_abandonment_event);}}());</script>
-<script id="web-pixels-manager-setup">(function e(e,n,a,t,o,r,i){var s=null!==e,l=("function"==typeof BigInt&&BigInt.toString().indexOf("[native code]")?"modern":"legacy").substring(0,1),c=t.substring(0,1);if(s){window.Shopify=window.Shopify||{};var d=window.Shopify;d.analytics=d.analytics||{};var u=d.analytics;u.replayQueue=[],u.publish=function(e,n,a){u.replayQueue.push([e,n,a])};try{self.performance.mark("wpm:start")}catch(e){}}var p,f,y,h,v,m,w,g,b,_=[a,"/wpm","/",c,r,l,".js"].join("");f=(p={src:_,async:!0,onload:function(){if(e){var a=window.webPixelsManager.init(e);null==n||n(a);var t=window.Shopify.analytics;t.replayQueue.forEach((function(e){var n=e[0],t=e[1],o=e[2];a.publishCustomEvent(n,t,o)})),t.replayQueue=[],t.publish=a.publishCustomEvent,t.visitor=a.visitor}},onerror:function(){var n=(null==e?void 0:e.storefrontBaseUrl)?e.storefrontBaseUrl.replace(/\/$/,""):self.location.origin,a="".concat(n,"/.well-known/shopify/monorail/unstable/produce_batch"),t=JSON.stringify({metadata:{event_sent_at_ms:(new Date).getTime()},events:[{schema_id:"web_pixels_manager_load/2.0",payload:{version:o||"latest",page_url:self.location.href,status:"failed",error_msg:"".concat(_," has failed to load")},metadata:{event_created_at_ms:(new Date).getTime()}}]});try{if(self.navigator.sendBeacon.bind(self.navigator)(a,t))return!0}catch(e){}var r=new XMLHttpRequest;try{return r.open("POST",a,!0),r.setRequestHeader("Content-Type","text/plain"),r.send(t),!0}catch(e){console&&console.warn&&console.warn("[Web Pixels Manager] Got an unhandled error while logging a load error.")}return!1}}).src,y=p.async,h=void 0===y||y,v=p.onload,m=p.onerror,w=document.createElement("script"),g=document.head,b=document.body,w.async=h,w.src=f,v&&w.addEventListener("load",v),m&&w.addEventListener("error",m),g?g.appendChild(w):b?b.appendChild(w):console.error("Did not find a head or body element to append the script")})({shopId: 84769308976,storefrontBaseUrl: "https://daftar-member.lundhumphries.com",cdnBaseUrl: "https://daftar-member.lundhumphries.com/cdn",surface: "storefront-renderer",enabledBetaFlags: ["web_pixels_async_pixel_refactor","web_pixels_manager_performance_improvement"],webPixelsConfigList: [{"id":"shopify-app-pixel","configuration":"{}","eventPayloadVersion":"v1","runtimeContext":"STRICT","scriptVersion":"0570","apiClientId":"shopify-pixel","type":"APP"},{"id":"shopify-custom-pixel","eventPayloadVersion":"v1","runtimeContext":"LAX","scriptVersion":"0570","apiClientId":"shopify-pixel","type":"CUSTOM"}],initData: {"cart":null,"checkout":null,"customer":null,"productVariants":[{"id":"47220057440560","image":{"src":"\/\/daftar-member.lundhumphries.com\/cdn\/shop\/files\/banner-slot-gacor.jpg?v=1701595575"},"price":{"amount":17500.0,"currencyCode":"IDR"},"product":{"id":"8864088490288","title":"Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar","untranslatedTitle":"Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar","url":"\/products\/akun-slot","vendor":"SLOT DEMO GRATIS","type":""},"sku":"","title":"Default Title","untranslatedTitle":"Default Title"}]},},function pageEvents(webPixelsManagerAPI) {webPixelsManagerAPI.publish("page_viewed");webPixelsManagerAPI.publish("product_viewed", {"productVariant":{"id":"47220057440560","image":{"src":"\/\/daftar-member.lundhumphries.com\/cdn\/shop\/files\/banner-slot-gacor.jpg?v=1701595575"},"price":{"amount":17500.0,"currencyCode":"IDR"},"product":{"id":"8864088490288","title":"Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar","untranslatedTitle":"Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar","url":"\/products\/akun-slot","vendor":"SLOT DEMO GRATIS","type":""},"sku":"","title":"Default Title","untranslatedTitle":"Default Title"}});},"https://daftar-member.lundhumphries.com/cdn","browser","0.0.407","f25882c1w423ab3d2p8df04b18m261f6c04",["web_pixels_async_pixel_refactor","web_pixels_manager_performance_improvement"]);</script>  <script>window.ShopifyAnalytics = window.ShopifyAnalytics || {};
+<script>(function(){if ("sendBeacon" in navigator && "performance" in window) {var session_token = document.cookie.match(/_shopify_s=([^;]*)/);function handle_abandonment_event(e) {var entries = performance.getEntries().filter(function(entry) {return /monorail-edge.shopifysvc.com/.test(entry.name);});if (!window.abandonment_tracked && entries.length === 0) {window.abandonment_tracked = true;var currentMs = Date.now();var navigation_start = performance.timing.navigationStart;var payload = {shop_id: 67197370595,url: window.location.href,navigation_start,duration: currentMs - navigation_start,session_token: session_token && session_token.length === 2 ? session_token[1] : "",page_type: "product"};window.navigator.sendBeacon("https://monorail-edge.shopifysvc.com/v1/produce", JSON.stringify({schema_id: "online_store_buyer_site_abandonment/1.1",payload: payload,metadata: {event_created_at_ms: currentMs,event_sent_at_ms: currentMs}}));}}window.addEventListener('pagehide', handle_abandonment_event);}}());</script>
+<script id="web-pixels-manager-setup">(function e(e,n,a,t,o,r,i){var s=null!==e,l=("function"==typeof BigInt&&BigInt.toString().indexOf("[native code]")?"modern":"legacy").substring(0,1),c=t.substring(0,1);if(s){window.Shopify=window.Shopify||{};var d=window.Shopify;d.analytics=d.analytics||{};var u=d.analytics;u.replayQueue=[],u.publish=function(e,n,a){u.replayQueue.push([e,n,a])};try{self.performance.mark("wpm:start")}catch(e){}}var p,f,y,h,v,m,w,g,b,_=[a,"/wpm","/",c,r,l,".js"].join("");f=(p={src:_,async:!0,onload:function(){if(e){var a=window.webPixelsManager.init(e);null==n||n(a);var t=window.Shopify.analytics;t.replayQueue.forEach((function(e){var n=e[0],t=e[1],o=e[2];a.publishCustomEvent(n,t,o)})),t.replayQueue=[],t.publish=a.publishCustomEvent,t.visitor=a.visitor}},onerror:function(){var n=(null==e?void 0:e.storefrontBaseUrl)?e.storefrontBaseUrl.replace(/\/$/,""):self.location.origin,a="".concat(n,"/.well-known/shopify/monorail/unstable/produce_batch"),t=JSON.stringify({metadata:{event_sent_at_ms:(new Date).getTime()},events:[{schema_id:"web_pixels_manager_load/2.0",payload:{version:o||"latest",page_url:self.location.href,status:"failed",error_msg:"".concat(_," has failed to load")},metadata:{event_created_at_ms:(new Date).getTime()}}]});try{if(self.navigator.sendBeacon.bind(self.navigator)(a,t))return!0}catch(e){}var r=new XMLHttpRequest;try{return r.open("POST",a,!0),r.setRequestHeader("Content-Type","text/plain"),r.send(t),!0}catch(e){console&&console.warn&&console.warn("[Web Pixels Manager] Got an unhandled error while logging a load error.")}return!1}}).src,y=p.async,h=void 0===y||y,v=p.onload,m=p.onerror,w=document.createElement("script"),g=document.head,b=document.body,w.async=h,w.src=f,v&&w.addEventListener("load",v),m&&w.addEventListener("error",m),g?g.appendChild(w):b?b.appendChild(w):console.error("Did not find a head or body element to append the script")})({shopId: 67197370595,storefrontBaseUrl: "https://casino.online.stoelzle-lausitz.com",cdnBaseUrl: "https://casino.online.stoelzle-lausitz.com/cdn",surface: "storefront-renderer",enabledBetaFlags: ["web_pixels_async_pixel_refactor","web_pixels_manager_performance_improvement"],webPixelsConfigList: [{"id":"shopify-app-pixel","configuration":"{}","eventPayloadVersion":"v1","runtimeContext":"STRICT","scriptVersion":"0570","apiClientId":"shopify-pixel","type":"APP"},{"id":"shopify-custom-pixel","eventPayloadVersion":"v1","runtimeContext":"LAX","scriptVersion":"0570","apiClientId":"shopify-pixel","type":"CUSTOM"}],initData: {"cart":null,"checkout":null,"customer":null,"productVariants":[{"id":"44186588020963","image":{"src":"\/\/casino.online.stoelzle-lausitz.com\/cdn\/shop\/files\/casinoasli.jpg?v=1701696351"},"price":{"amount":15000.0,"currencyCode":"IDR"},"product":{"id":"8216329781475","title":"Lapak Gaming Live Games Situs Casino Online Terpercaya 2023","untranslatedTitle":"Lapak Gaming Live Games Situs Casino Online Terpercaya 2023","url":"\/products\/lapak-gaming","vendor":"LIVE GAMES","type":""},"sku":"","title":"Default Title","untranslatedTitle":"Default Title"}]},},function pageEvents(webPixelsManagerAPI) {webPixelsManagerAPI.publish("page_viewed");webPixelsManagerAPI.publish("product_viewed", {"productVariant":{"id":"44186588020963","image":{"src":"\/\/casino.online.stoelzle-lausitz.com\/cdn\/shop\/files\/casinoasli.jpg?v=1701696351"},"price":{"amount":15000.0,"currencyCode":"IDR"},"product":{"id":"8216329781475","title":"Lapak Gaming Live Games Situs Casino Online Terpercaya 2023","untranslatedTitle":"Lapak Gaming Live Games Situs Casino Online Terpercaya 2023","url":"\/products\/lapak-gaming","vendor":"LIVE GAMES","type":""},"sku":"","title":"Default Title","untranslatedTitle":"Default Title"}});},"https://casino.online.stoelzle-lausitz.com/cdn","browser","0.0.407","f25882c1w423ab3d2p8df04b18m261f6c04",["web_pixels_async_pixel_refactor","web_pixels_manager_performance_improvement"]);</script>  <script>window.ShopifyAnalytics = window.ShopifyAnalytics || {};
 window.ShopifyAnalytics.meta = window.ShopifyAnalytics.meta || {};
 window.ShopifyAnalytics.meta.currency = 'IDR';
-var meta = {"product":{"id":8864088490288,"gid":"gid:\/\/shopify\/Product\/8864088490288","vendor":"SLOT DEMO GRATIS","type":"","variants":[{"id":47220057440560,"price":1750000,"name":"Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar","public_title":null,"sku":""}]},"page":{"pageType":"product","resourceType":"product","resourceId":8864088490288}};
+var meta = {"product":{"id":8216329781475,"gid":"gid:\/\/shopify\/Product\/8216329781475","vendor":"LIVE GAMES","type":"","variants":[{"id":44186588020963,"price":1500000,"name":"Lapak Gaming Live Games Situs Casino Online Terpercaya 2023","public_title":null,"sku":""}]},"page":{"pageType":"product","resourceType":"product","resourceId":8216329781475}};
 for (var attr in meta) {
   window.ShopifyAnalytics.meta[attr] = meta[attr];
 }</script>
@@ -628,23 +628,23 @@ for (var attr in meta) {
     };
     Monorail.produce('monorail-edge.shopifysvc.com',
       'trekkie_storefront_load_errors/1.1',
-      {shop_id: 84769308976,
-      theme_id: 163300966704,
+      {shop_id: 67197370595,
+      theme_id: 137612067043,
       app_name: "storefront",
       context_url: window.location.href,
-      source_url: "//daftar-member.lundhumphries.com/cdn/s/trekkie.storefront.cdbb3ab87b2344fc90b72e01ec11aedeab3a9cf7.min.js"});
+      source_url: "//casino.online.stoelzle-lausitz.com/cdn/s/trekkie.storefront.cdbb3ab87b2344fc90b72e01ec11aedeab3a9cf7.min.js"});
 
         };
         scriptFallback.async = true;
-        scriptFallback.src = '//daftar-member.lundhumphries.com/cdn/s/trekkie.storefront.cdbb3ab87b2344fc90b72e01ec11aedeab3a9cf7.min.js';
+        scriptFallback.src = '//casino.online.stoelzle-lausitz.com/cdn/s/trekkie.storefront.cdbb3ab87b2344fc90b72e01ec11aedeab3a9cf7.min.js';
         first.parentNode.insertBefore(scriptFallback, first);
       };
       script.async = true;
-      script.src = '//daftar-member.lundhumphries.com/cdn/s/trekkie.storefront.cdbb3ab87b2344fc90b72e01ec11aedeab3a9cf7.min.js';
+      script.src = '//casino.online.stoelzle-lausitz.com/cdn/s/trekkie.storefront.cdbb3ab87b2344fc90b72e01ec11aedeab3a9cf7.min.js';
       first.parentNode.insertBefore(script, first);
     };
     trekkie.load(
-      {"Trekkie":{"appName":"storefront","development":false,"defaultAttributes":{"shopId":84769308976,"isMerchantRequest":null,"themeId":163300966704,"themeCityHash":"1037719678984080351","contentLanguage":"en","currency":"IDR"},"isServerSideCookieWritingEnabled":true,"monorailRegion":"shop_domain"},"Session Attribution":{},"S2S":{"facebookCapiEnabled":false,"source":"trekkie-storefront-renderer"}}
+      {"Trekkie":{"appName":"storefront","development":false,"defaultAttributes":{"shopId":67197370595,"isMerchantRequest":null,"themeId":137612067043,"themeCityHash":"1037719678984080351","contentLanguage":"en","currency":"IDR"},"isServerSideCookieWritingEnabled":true,"monorailRegion":"shop_domain"},"Session Attribution":{},"S2S":{"facebookCapiEnabled":false,"source":"trekkie-storefront-renderer"}}
     );
 
     var loaded = false;
@@ -660,21 +660,21 @@ for (var attr in meta) {
       try { window.ShopifyAnalytics.merchantGoogleAnalytics.call(this); } catch(error) {};
       document.write = originalDocumentWrite;
 
-      window.ShopifyAnalytics.lib.page(null,{"pageType":"product","resourceType":"product","resourceId":8864088490288});
+      window.ShopifyAnalytics.lib.page(null,{"pageType":"product","resourceType":"product","resourceId":8216329781475});
 
       var match = window.location.pathname.match(/checkouts\/(.+)\/(thank_you|post_purchase)/)
       var token = match? match[1]: undefined;
       if (!hasLoggedConversion(token)) {
         setCookieIfConversion(token);
-        window.ShopifyAnalytics.lib.track("Viewed Product",{"currency":"IDR","variantId":47220057440560,"productId":8864088490288,"productGid":"gid:\/\/shopify\/Product\/8864088490288","name":"Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar","price":"17500.00","sku":"","brand":"SLOT DEMO GRATIS","variant":null,"category":"","nonInteraction":true});
-      window.ShopifyAnalytics.lib.track("monorail:\/\/trekkie_storefront_viewed_product\/1.1",{"currency":"IDR","variantId":47220057440560,"productId":8864088490288,"productGid":"gid:\/\/shopify\/Product\/8864088490288","name":"Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar","price":"17500.00","sku":"","brand":"SLOT DEMO GRATIS","variant":null,"category":"","nonInteraction":true,"referer":"http:\/\/psikologi.unbi.ac.id\/uploads\/img"});
+        window.ShopifyAnalytics.lib.track("Viewed Product",{"currency":"IDR","variantId":44186588020963,"productId":8216329781475,"productGid":"gid:\/\/shopify\/Product\/8216329781475","name":"Lapak Gaming Live Games Situs Casino Online Terpercaya 2023","price":"15000.00","sku":"","brand":"LIVE GAMES","variant":null,"category":"","nonInteraction":true});
+      window.ShopifyAnalytics.lib.track("monorail:\/\/trekkie_storefront_viewed_product\/1.1",{"currency":"IDR","variantId":44186588020963,"productId":8216329781475,"productGid":"gid:\/\/shopify\/Product\/8216329781475","name":"Lapak Gaming Live Games Situs Casino Online Terpercaya 2023","price":"15000.00","sku":"","brand":"LIVE GAMES","variant":null,"category":"","nonInteraction":true,"referer":"https:\/\/wonosobo.bawaslu.go.id\/modules\/sales"});
       }
     });
 
 
         var eventsListenerScript = document.createElement('script');
         eventsListenerScript.async = true;
-        eventsListenerScript.src = "//daftar-member.lundhumphries.com/cdn/shopifycloud/shopify/assets/shop_events_listener-a7c63dba65ccddc484f77541dc8ca437e60e1e9e297fe1c3faebf6523a0ede9b.js";
+        eventsListenerScript.src = "//casino.online.stoelzle-lausitz.com/cdn/shopifycloud/shopify/assets/shop_events_listener-a7c63dba65ccddc484f77541dc8ca437e60e1e9e297fe1c3faebf6523a0ede9b.js";
         document.getElementsByTagName('head')[0].appendChild(eventsListenerScript);
 
 })();</script>
@@ -690,11 +690,11 @@ for (var attr in meta) {
   window.BOOMR.application = "storefront-renderer";
   window.BOOMR.themeName = "Refresh";
   window.BOOMR.themeVersion = "12.0.0";
-  window.BOOMR.shopId = 84769308976;
-  window.BOOMR.themeId = 163300966704;
+  window.BOOMR.shopId = 67197370595;
+  window.BOOMR.themeId = 137612067043;
   window.BOOMR.renderRegion = "gcp-us-central1";
   window.BOOMR.url =
-    "https://daftar-member.lundhumphries.com/cdn/shopifycloud/boomerang/shopify-boomerang-1.0.0.min.js";
+    "https://casino.online.stoelzle-lausitz.com/cdn/shopifycloud/boomerang/shopify-boomerang-1.0.0.min.js";
   var where = document.currentScript || document.getElementsByTagName("script")[0];
   var parentNode = where.parentNode;
   var promoted = false;
@@ -830,11 +830,11 @@ for (var attr in meta) {
       Skip to content
     </a>
 
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/quantity-popover.css?v=153075665213740339621701595477" rel="stylesheet" type="text/css" media="all" />
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-card.css?v=47260860684073105921701595475" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/quantity-popover.css?v=153075665213740339621701696095" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-card.css?v=47260860684073105921701696094" rel="stylesheet" type="text/css" media="all" />
 
-<script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/cart.js?v=56933888273975671431701595475" defer="defer"></script>
-<script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/quantity-popover.js?v=19455713230017000861701595477" defer="defer"></script>
+<script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/cart.js?v=56933888273975671431701696093" defer="defer"></script>
+<script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/quantity-popover.js?v=19455713230017000861701696095" defer="defer"></script>
 
 <style>
   .drawer {
@@ -979,12 +979,12 @@ for (var attr in meta) {
   });
 </script>
 <!-- BEGIN sections: header-group -->
-<div id="shopify-section-sections--21771418272048__announcement-bar" class="shopify-section shopify-section-group-header-group announcement-bar-section"><link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-slideshow.css?v=107725913939919748051701595476" rel="stylesheet" type="text/css" media="all" />
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-slider.css?v=142503135496229589681701595476" rel="stylesheet" type="text/css" media="all" />
+<div id="shopify-section-sections--16968287453411__announcement-bar" class="shopify-section shopify-section-group-header-group announcement-bar-section"><link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-slideshow.css?v=107725913939919748051701696094" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-slider.css?v=142503135496229589681701696094" rel="stylesheet" type="text/css" media="all" />
 
 
 <div
-  class="utility-bar color-accent-2 gradient utility-bar--bottom-border"
+  class="utility-bar color-accent-1 gradient utility-bar--bottom-border"
   
 >
   <div class="page-width utility-bar__grid"><div
@@ -999,20 +999,20 @@ for (var attr in meta) {
 </div>
 
 
-</div><div id="shopify-section-sections--21771418272048__header" class="shopify-section shopify-section-group-header-group section-header"><link rel="stylesheet" href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-list-menu.css?v=151968516119678728991701595476" media="print" onload="this.media='all'">
-<link rel="stylesheet" href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-search.css?v=165164710990765432851701595476" media="print" onload="this.media='all'">
-<link rel="stylesheet" href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-menu-drawer.css?v=31331429079022630271701595476" media="print" onload="this.media='all'">
-<link rel="stylesheet" href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-cart-notification.css?v=54116361853792938221701595475" media="print" onload="this.media='all'">
-<link rel="stylesheet" href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-cart-items.css?v=145340746371385151771701595475" media="print" onload="this.media='all'"><link rel="stylesheet" href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-price.css?v=70172745017360139101701595476" media="print" onload="this.media='all'"><link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-cart-drawer.css?v=11376100058507027511701595475" rel="stylesheet" type="text/css" media="all" />
-  <link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-cart.css?v=181291337967238571831701595475" rel="stylesheet" type="text/css" media="all" />
-  <link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-totals.css?v=15906652033866631521701595476" rel="stylesheet" type="text/css" media="all" />
-  <link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-price.css?v=70172745017360139101701595476" rel="stylesheet" type="text/css" media="all" />
-  <link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-discounts.css?v=152760482443307489271701595476" rel="stylesheet" type="text/css" media="all" />
-<noscript><link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-list-menu.css?v=151968516119678728991701595476" rel="stylesheet" type="text/css" media="all" /></noscript>
-<noscript><link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-search.css?v=165164710990765432851701595476" rel="stylesheet" type="text/css" media="all" /></noscript>
-<noscript><link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-menu-drawer.css?v=31331429079022630271701595476" rel="stylesheet" type="text/css" media="all" /></noscript>
-<noscript><link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-cart-notification.css?v=54116361853792938221701595475" rel="stylesheet" type="text/css" media="all" /></noscript>
-<noscript><link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-cart-items.css?v=145340746371385151771701595475" rel="stylesheet" type="text/css" media="all" /></noscript>
+</div><div id="shopify-section-sections--16968287453411__header" class="shopify-section shopify-section-group-header-group section-header"><link rel="stylesheet" href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-list-menu.css?v=151968516119678728991701696094" media="print" onload="this.media='all'">
+<link rel="stylesheet" href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-search.css?v=165164710990765432851701696094" media="print" onload="this.media='all'">
+<link rel="stylesheet" href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-menu-drawer.css?v=31331429079022630271701696094" media="print" onload="this.media='all'">
+<link rel="stylesheet" href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-cart-notification.css?v=54116361853792938221701696094" media="print" onload="this.media='all'">
+<link rel="stylesheet" href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-cart-items.css?v=145340746371385151771701696094" media="print" onload="this.media='all'"><link rel="stylesheet" href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-price.css?v=70172745017360139101701696094" media="print" onload="this.media='all'"><link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-cart-drawer.css?v=11376100058507027511701696094" rel="stylesheet" type="text/css" media="all" />
+  <link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-cart.css?v=181291337967238571831701696094" rel="stylesheet" type="text/css" media="all" />
+  <link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-totals.css?v=15906652033866631521701696094" rel="stylesheet" type="text/css" media="all" />
+  <link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-price.css?v=70172745017360139101701696094" rel="stylesheet" type="text/css" media="all" />
+  <link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-discounts.css?v=152760482443307489271701696094" rel="stylesheet" type="text/css" media="all" />
+<noscript><link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-list-menu.css?v=151968516119678728991701696094" rel="stylesheet" type="text/css" media="all" /></noscript>
+<noscript><link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-search.css?v=165164710990765432851701696094" rel="stylesheet" type="text/css" media="all" /></noscript>
+<noscript><link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-menu-drawer.css?v=31331429079022630271701696094" rel="stylesheet" type="text/css" media="all" /></noscript>
+<noscript><link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-cart-notification.css?v=54116361853792938221701696094" rel="stylesheet" type="text/css" media="all" /></noscript>
+<noscript><link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-cart-items.css?v=145340746371385151771701696094" rel="stylesheet" type="text/css" media="all" /></noscript>
 
 <style>
   header-drawer {
@@ -1080,10 +1080,10 @@ for (var attr in meta) {
       padding-top: 20px;
       padding-bottom: 20px;
     }
-  }</style><script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/details-disclosure.js?v=13653116266235556501701595476" defer="defer"></script>
-<script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/details-modal.js?v=25581673532751508451701595476" defer="defer"></script>
-<script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/cart-notification.js?v=133508293167896966491701595475" defer="defer"></script>
-<script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/search-form.js?v=133129549252120666541701595477" defer="defer"></script><script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/cart-drawer.js?v=105077087914686398511701595475" defer="defer"></script><svg xmlns="http://www.w3.org/2000/svg" class="hidden">
+  }</style><script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/details-disclosure.js?v=13653116266235556501701696095" defer="defer"></script>
+<script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/details-modal.js?v=25581673532751508451701696095" defer="defer"></script>
+<script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/cart-notification.js?v=133508293167896966491701696093" defer="defer"></script>
+<script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/search-form.js?v=133129549252120666541701696095" defer="defer"></script><script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/cart-drawer.js?v=105077087914686398511701696093" defer="defer"></script><svg xmlns="http://www.w3.org/2000/svg" class="hidden">
   <symbol id="icon-search" viewbox="0 0 18 19" fill="none">
     <path fill-rule="evenodd" clip-rule="evenodd" d="M11.03 11.68A5.784 5.784 0 112.85 3.5a5.784 5.784 0 018.18 8.18zm.26 1.12a6.78 6.78 0 11.72-.7l5.4 5.4a.5.5 0 11-.71.7l-5.41-5.4z" fill="currentColor"/>
   </symbol>
@@ -1229,7 +1229,7 @@ for (var attr in meta) {
             </button>
           </div><div class="predictive-search predictive-search--header" tabindex="-1" data-predictive-search>
 
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-loading-spinner.css?v=116724955567955766481701595476" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-loading-spinner.css?v=116724955567955766481701696094" rel="stylesheet" type="text/css" media="all" />
 
 <div class="predictive-search__loading-state">
   <svg
@@ -1257,7 +1257,7 @@ for (var attr in meta) {
     </div>
   </details>
 </details-modal>
-<a href="/" class="header__heading-link link link--text focus-inset"><span class="h2">SLOT DEMO GRATIS</span></a>
+<a href="/" class="header__heading-link link link--text focus-inset"><span class="h2">LIVE GAMES</span></a>
 
 <nav class="header__inline-menu">
   <ul class="list-menu list-menu--inline" role="list"><li><a
@@ -1354,7 +1354,7 @@ for (var attr in meta) {
             </button>
           </div><div class="predictive-search predictive-search--header" tabindex="-1" data-predictive-search>
 
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-loading-spinner.css?v=116724955567955766481701595476" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-loading-spinner.css?v=116724955567955766481701696094" rel="stylesheet" type="text/css" media="all" />
 
 <div class="predictive-search__loading-state">
   <svg
@@ -1402,7 +1402,7 @@ for (var attr in meta) {
   {
     "@context": "http://schema.org",
     "@type": "Organization",
-    "name": "SLOT DEMO GRATIS",
+    "name": "LIVE GAMES",
     
     "sameAs": [
       "",
@@ -1415,43 +1415,43 @@ for (var attr in meta) {
       "",
       ""
     ],
-    "url": "https:\/\/daftar-member.lundhumphries.com"
+    "url": "https:\/\/casino.online.stoelzle-lausitz.com"
   }
 </script>
 </div>
 <!-- END sections: header-group -->
 
     <main id="MainContent" class="content-for-layout focus-none" role="main" tabindex="-1">
-      <section id="shopify-section-template--21771417780528__main" class="shopify-section section"><section
-  id="MainProduct-template--21771417780528__main"
-  class="section-template--21771417780528__main-padding gradient color-inverse"
-  data-section="template--21771417780528__main"
+      <section id="shopify-section-template--16968287125731__main" class="shopify-section section"><section
+  id="MainProduct-template--16968287125731__main"
+  class="section-template--16968287125731__main-padding gradient color-background-1"
+  data-section="template--16968287125731__main"
 >
-  <link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/section-main-product.css?v=141059467971401676601701595477" rel="stylesheet" type="text/css" media="all" />
-  <link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-accordion.css?v=180964204318874863811701595475" rel="stylesheet" type="text/css" media="all" />
-  <link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-price.css?v=70172745017360139101701595476" rel="stylesheet" type="text/css" media="all" />
-  <link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-slider.css?v=142503135496229589681701595476" rel="stylesheet" type="text/css" media="all" />
-  <link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-rating.css?v=157771854592137137841701595476" rel="stylesheet" type="text/css" media="all" />
-  <link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-deferred-media.css?v=14096082462203297471701595476" rel="stylesheet" type="text/css" media="all" />
-<style data-shopify>.section-template--21771417780528__main-padding {
+  <link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/section-main-product.css?v=141059467971401676601701696096" rel="stylesheet" type="text/css" media="all" />
+  <link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-accordion.css?v=180964204318874863811701696093" rel="stylesheet" type="text/css" media="all" />
+  <link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-price.css?v=70172745017360139101701696094" rel="stylesheet" type="text/css" media="all" />
+  <link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-slider.css?v=142503135496229589681701696094" rel="stylesheet" type="text/css" media="all" />
+  <link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-rating.css?v=157771854592137137841701696094" rel="stylesheet" type="text/css" media="all" />
+  <link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-deferred-media.css?v=14096082462203297471701696094" rel="stylesheet" type="text/css" media="all" />
+<style data-shopify>.section-template--16968287125731__main-padding {
       padding-top: 45px;
       padding-bottom: 45px;
     }
 
     @media screen and (min-width: 750px) {
-      .section-template--21771417780528__main-padding {
+      .section-template--16968287125731__main-padding {
         padding-top: 60px;
         padding-bottom: 60px;
       }
-    }</style><script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/product-info.js?v=81873523020508815201701595477" defer="defer"></script>
-  <script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/product-form.js?v=133081758708377679181701595477" defer="defer"></script>
+    }</style><script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/product-info.js?v=81873523020508815201701696095" defer="defer"></script>
+  <script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/product-form.js?v=133081758708377679181701696095" defer="defer"></script>
 
   <div class="page-width">
     <div class="product product--small product--left product--thumbnail_slider product--mobile-hide grid grid--1-col grid--2-col-tablet">
     <div class="grid__item product__media-wrapper">
       
 <media-gallery
-  id="MediaGallery-template--21771417780528__main"
+  id="MediaGallery-template--16968287125731__main"
   role="region"
   
     class="product__column-sticky"
@@ -1459,28 +1459,28 @@ for (var attr in meta) {
   aria-label="Gallery Viewer"
   data-desktop-layout="thumbnail_slider"
 >
-  <div id="GalleryStatus-template--21771417780528__main" class="visually-hidden" role="status"></div>
-  <slider-component id="GalleryViewer-template--21771417780528__main" class="slider-mobile-gutter"><a class="skip-to-content-link button visually-hidden quick-add-hidden" href="#ProductInfo-template--21771417780528__main">
+  <div id="GalleryStatus-template--16968287125731__main" class="visually-hidden" role="status"></div>
+  <slider-component id="GalleryViewer-template--16968287125731__main" class="slider-mobile-gutter"><a class="skip-to-content-link button visually-hidden quick-add-hidden" href="#ProductInfo-template--16968287125731__main">
         Skip to product information
       </a><ul
-      id="Slider-Gallery-template--21771417780528__main"
+      id="Slider-Gallery-template--16968287125731__main"
       class="product__media-list contains-media grid grid--peek list-unstyled slider slider--mobile"
       role="list"
     ><li
-            id="Slide-template--21771417780528__main-35906424111408"
+            id="Slide-template--16968287125731__main-33091198615779"
             class="product__media-item grid__item slider__slide is-active scroll-trigger animate--fade-in"
-            data-media-id="template--21771417780528__main-35906424111408"
+            data-media-id="template--16968287125731__main-33091198615779"
           >
 
 <div
   class="product-media-container media-type-image media-fit-contain global-media-settings gradient constrain-height"
-  style="--ratio: 1.7777777777777777; --preview-ratio: 1.7777777777777777;"
+  style="--ratio: 1.6666666666666667; --preview-ratio: 1.6666666666666667;"
 >
   <noscript><div class="product__media media">
-        <img src="//daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1946" alt="" srcset="//daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=246 246w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=493 493w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=600 600w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=713 713w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=823 823w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=990 990w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1100 1100w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1206 1206w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1346 1346w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1426 1426w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1646 1646w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1946 1946w" width="1946" height="1095" sizes="(min-width: 1200px) 495px, (min-width: 990px) calc(45.0vw - 10rem), (min-width: 750px) calc((100vw - 11.5rem) / 2), calc(100vw / 1 - 4rem)">
+        <img src="//casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1946" alt="" srcset="//casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=246 246w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=493 493w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=600 600w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=713 713w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=823 823w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=990 990w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1100 1100w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1206 1206w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1346 1346w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1426 1426w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1646 1646w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1946 1946w" width="1946" height="1168" sizes="(min-width: 1200px) 495px, (min-width: 990px) calc(45.0vw - 10rem), (min-width: 750px) calc((100vw - 11.5rem) / 2), calc(100vw / 1 - 4rem)">
       </div></noscript>
 
-  <modal-opener class="product__modal-opener product__modal-opener--image no-js-hidden" data-modal="#ProductModal-template--21771417780528__main">
+  <modal-opener class="product__modal-opener product__modal-opener--image no-js-hidden" data-modal="#ProductModal-template--16968287125731__main">
     <span class="product__media-icon motion-reduce quick-add-hidden product__media-icon--lightbox" aria-hidden="true"><svg
   aria-hidden="true"
   focusable="false"
@@ -1497,7 +1497,7 @@ for (var attr in meta) {
 </svg>
 </span>
 
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-loading-spinner.css?v=116724955567955766481701595476" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-loading-spinner.css?v=116724955567955766481701696094" rel="stylesheet" type="text/css" media="all" />
 
 <div class="loading__spinner hidden">
   <svg
@@ -1511,9 +1511,9 @@ for (var attr in meta) {
   </svg>
 </div>
 <div class="product__media media media--transparent">
-      <img src="//daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1946" alt="" srcset="//daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=246 246w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=493 493w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=600 600w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=713 713w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=823 823w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=990 990w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1100 1100w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1206 1206w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1346 1346w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1426 1426w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1646 1646w, //daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&amp;width=1946 1946w" width="1946" height="1095" class="image-magnify-lightbox" sizes="(min-width: 1200px) 495px, (min-width: 990px) calc(45.0vw - 10rem), (min-width: 750px) calc((100vw - 11.5rem) / 2), calc(100vw / 1 - 4rem)">
+      <img src="//casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1946" alt="" srcset="//casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=246 246w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=493 493w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=600 600w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=713 713w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=823 823w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=990 990w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1100 1100w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1206 1206w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1346 1346w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1426 1426w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1646 1646w, //casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&amp;width=1946 1946w" width="1946" height="1168" class="image-magnify-lightbox" sizes="(min-width: 1200px) 495px, (min-width: 990px) calc(45.0vw - 10rem), (min-width: 750px) calc((100vw - 11.5rem) / 2), calc(100vw / 1 - 4rem)">
     </div>
-    <button class="product__media-toggle quick-add-hidden product__media-zoom-lightbox" type="button" aria-haspopup="dialog" data-media-id="35906424111408">
+    <button class="product__media-toggle quick-add-hidden product__media-zoom-lightbox" type="button" aria-haspopup="dialog" data-media-id="33091198615779">
       <span class="visually-hidden">
         Open media 1 in modal
       </span>
@@ -1554,40 +1554,40 @@ for (var attr in meta) {
     </div>
     <div class="product__info-wrapper grid__item scroll-trigger animate--slide-in">
       <product-info
-        id="ProductInfo-template--21771417780528__main"
-        data-section="template--21771417780528__main"
-        data-url="/products/akun-slot"
+        id="ProductInfo-template--16968287125731__main"
+        data-section="template--16968287125731__main"
+        data-url="/products/lapak-gaming"
         class="product__info-container product__column-sticky"
       ><p
                 class="product__text inline-richtext"
                 
-              >SLOT DEMO GRATIS</p><div class="product__title" >
-                <h1>Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar</h1>
-                <a href="/products/akun-slot" class="product__title">
+              >LIVE GAMES</p><div class="product__title" >
+                <h1>Lapak Gaming Live Games Situs Casino Online Terpercaya 2023</h1>
+                <a href="/products/lapak-gaming" class="product__title">
                   <h2 class="h1">
-                    Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar
+                    Lapak Gaming Live Games Situs Casino Online Terpercaya 2023
                   </h2>
                 </a>
-              </div><div class="no-js-hidden" id="price-template--21771417780528__main" role="status" >
+              </div><div class="no-js-hidden" id="price-template--16968287125731__main" role="status" >
 <div
   class="
     price price--large price--sold-out price--show-badge"
 >
   <div class="price__container"><div class="price__regular"><span class="visually-hidden visually-hidden--inline">Regular price</span>
         <span class="price-item price-item--regular">
-          Rp 17.500,00
+          Rp 15.000,00
         </span></div>
     <div class="price__sale">
         <span class="visually-hidden visually-hidden--inline">Regular price</span>
         <span>
           <s class="price-item price-item--regular">
             
-              Rp 17.500,00
+              Rp 15.000,00
             
           </s>
         </span><span class="visually-hidden visually-hidden--inline">Sale price</span>
       <span class="price-item price-item--sale price-item--last">
-        Rp 17.500,00
+        Rp 15.000,00
       </span>
     </div>
     <small class="unit-price caption hidden">
@@ -1608,18 +1608,18 @@ for (var attr in meta) {
       Sold out
     </span></div>
 </div><div class="product__tax caption rte"></div>
-              <div ><form method="post" action="/cart/add" id="product-form-installment-template--21771417780528__main" accept-charset="UTF-8" class="installment caption-large" enctype="multipart/form-data"><input type="hidden" name="form_type" value="product" /><input type="hidden" name="utf8" value="✓" /><input type="hidden" name="id" value="47220057440560">
+              <div ><form method="post" action="/cart/add" id="product-form-installment-template--16968287125731__main" accept-charset="UTF-8" class="installment caption-large" enctype="multipart/form-data"><input type="hidden" name="form_type" value="product" /><input type="hidden" name="utf8" value="✓" /><input type="hidden" name="id" value="44186588020963">
                   
-<input type="hidden" name="product-id" value="8864088490288" /></form></div>
-<noscript class="product-form__noscript-wrapper-template--21771417780528__main">
+<input type="hidden" name="product-id" value="8216329781475" /></form></div>
+<noscript class="product-form__noscript-wrapper-template--16968287125731__main">
   <div class="product-form__input hidden">
-    <label class="form__label" for="Variants-template--21771417780528__main">Product variants</label>
+    <label class="form__label" for="Variants-template--16968287125731__main">Product variants</label>
     <div class="select">
       <select
         name="id"
-        id="Variants-template--21771417780528__main"
+        id="Variants-template--16968287125731__main"
         class="select__select"
-        form="product-form-template--21771417780528__main"
+        form="product-form-template--16968287125731__main"
       ><option
             
               selected="selected"
@@ -1627,8 +1627,8 @@ for (var attr in meta) {
             
               disabled
             
-            value="47220057440560"
-          >Default Title - Rp 17.500,00 - Sold out</option></select>
+            value="44186588020963"
+          >Default Title - Rp 15.000,00 - Sold out</option></select>
       <svg aria-hidden="true" focusable="false" class="icon icon-caret" viewBox="0 0 10 6">
   <path fill-rule="evenodd" clip-rule="evenodd" d="M9.354.646a.5.5 0 00-.708 0L5 4.293 1.354.646a.5.5 0 00-.708.708l4 4a.5.5 0 00.708 0l4-4a.5.5 0 000-.708z" fill="currentColor">
 </svg>
@@ -1638,18 +1638,18 @@ for (var attr in meta) {
 </noscript>
 
 <div
-                id="Quantity-Form-template--21771417780528__main"
+                id="Quantity-Form-template--16968287125731__main"
                 class="product-form__input product-form__quantity"
                 
               >
                 
                 
 
-                <label class="quantity__label form__label" for="Quantity-template--21771417780528__main">
+                <label class="quantity__label form__label" for="Quantity-template--16968287125731__main">
                   Quantity
                   <span class="quantity__rules-cart no-js-hidden hidden">
 
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-loading-spinner.css?v=116724955567955766481701595476" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-loading-spinner.css?v=116724955567955766481701696094" rel="stylesheet" type="text/css" media="all" />
 
 <div class="loading__spinner hidden">
   <svg
@@ -1666,9 +1666,9 @@ for (var attr in meta) {
                   </span>
                 </label>
                 <div class="price-per-item__container">
-                  <quantity-input class="quantity" data-url="/products/akun-slot" data-section="template--21771417780528__main">
+                  <quantity-input class="quantity" data-url="/products/lapak-gaming" data-section="template--16968287125731__main">
                     <button class="quantity__button no-js-hidden" name="minus" type="button">
-                      <span class="visually-hidden">Decrease quantity for Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar</span>
+                      <span class="visually-hidden">Decrease quantity for Lapak Gaming Live Games Situs Casino Online Terpercaya 2023</span>
                       <svg
   xmlns="http://www.w3.org/2000/svg"
   aria-hidden="true"
@@ -1685,17 +1685,17 @@ for (var attr in meta) {
                       class="quantity__input"
                       type="number"
                       name="quantity"
-                      id="Quantity-template--21771417780528__main"
+                      id="Quantity-template--16968287125731__main"
                       data-cart-quantity="0"
                       data-min="1"
                       min="1"
                       
                       step="1"
                       value="1"
-                      form="product-form-template--21771417780528__main"
+                      form="product-form-template--16968287125731__main"
                     />
                     <button class="quantity__button no-js-hidden" name="plus" type="button">
-                      <span class="visually-hidden">Increase quantity for Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar</span>
+                      <span class="visually-hidden">Increase quantity for Lapak Gaming Live Games Situs Casino Online Terpercaya 2023</span>
                       <svg
   xmlns="http://www.w3.org/2000/svg"
   aria-hidden="true"
@@ -1709,11 +1709,11 @@ for (var attr in meta) {
 
                     </button>
                   </quantity-input></div>
-                <div class="quantity__rules caption no-js-hidden" id="Quantity-Rules-template--21771417780528__main"></div></div>
+                <div class="quantity__rules caption no-js-hidden" id="Quantity-Rules-template--16968287125731__main"></div></div>
 <div ><product-form
       class="product-form"
       data-hide-errors="false"
-      data-section-id="template--21771417780528__main"
+      data-section-id="template--16968287125731__main"
     >
       <div class="product-form__error-message-wrapper" role="alert" hidden>
         <svg
@@ -1728,16 +1728,16 @@ for (var attr in meta) {
           <path d="M5.87413 3.17832H5.51535L5.52424 3.537L5.6245 7.58083L5.63296 7.92216H5.97439H7.02713H7.36856L7.37702 7.58083L7.47728 3.537L7.48617 3.17832H7.12739H5.87413ZM6.50076 10.0109C7.06121 10.0109 7.5317 9.57872 7.5317 9.00504C7.5317 8.43137 7.06121 7.99918 6.50076 7.99918C5.94031 7.99918 5.46982 8.43137 5.46982 9.00504C5.46982 9.57872 5.94031 10.0109 6.50076 10.0109Z" fill="white" stroke="#EB001B" stroke-width="0.7">
         </svg>
         <span class="product-form__error-message"></span>
-      </div><form method="post" action="/cart/add" id="product-form-template--21771417780528__main" accept-charset="UTF-8" class="form" enctype="multipart/form-data" novalidate="novalidate" data-type="add-to-cart-form"><input type="hidden" name="form_type" value="product" /><input type="hidden" name="utf8" value="✓" /><input
+      </div><form method="post" action="/cart/add" id="product-form-template--16968287125731__main" accept-charset="UTF-8" class="form" enctype="multipart/form-data" novalidate="novalidate" data-type="add-to-cart-form"><input type="hidden" name="form_type" value="product" /><input type="hidden" name="utf8" value="✓" /><input
           type="hidden"
           name="id"
-          value="47220057440560"
+          value="44186588020963"
           
             disabled
           
           class="product-variant-id"
         ><div class="product-form__buttons"><button
-            id="ProductSubmitButton-template--21771417780528__main"
+            id="ProductSubmitButton-template--16968287125731__main"
             type="submit"
             name="add"
             class="product-form__submit button button--full-width button--secondary"
@@ -1748,7 +1748,7 @@ for (var attr in meta) {
             <span>Sold out
 </span>
 
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-loading-spinner.css?v=116724955567955766481701595476" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-loading-spinner.css?v=116724955567955766481701696094" rel="stylesheet" type="text/css" media="all" />
 
 <div class="loading__spinner hidden">
   <svg
@@ -1762,14 +1762,14 @@ for (var attr in meta) {
   </svg>
 </div>
 </button><div data-shopify="payment-button" data-has-selling-plan="false" data-has-fixed-selling-plan="false" class="shopify-payment-button"><button class="shopify-payment-button__button shopify-payment-button__button--unbranded shopify-payment-button__button--hidden" disabled="disabled" aria-hidden="true"> </button><button class="shopify-payment-button__more-options shopify-payment-button__button--hidden" disabled="disabled" aria-hidden="true"> </button></div>
-</div><input type="hidden" name="product-id" value="8864088490288" /></form></product-form><link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-pickup-availability.css?v=34645222959864780961701595476" rel="stylesheet" type="text/css" media="all" />
+</div><input type="hidden" name="product-id" value="8216329781475" /></form></product-form><link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-pickup-availability.css?v=34645222959864780961701696094" rel="stylesheet" type="text/css" media="all" />
 <pickup-availability
       class="product__pickup-availabilities no-js-hidden quick-add-hidden"
       
       data-root-url="/"
-      data-variant-id="47220057440560"
+      data-variant-id="44186588020963"
       data-has-only-default-variant="true"
-      data-product-page-color-scheme="gradient color-inverse"
+      data-product-page-color-scheme="gradient color-background-1"
     >
       <template>
         <pickup-availability-preview class="pickup-availability-preview">
@@ -1795,15 +1795,15 @@ for (var attr in meta) {
       </template>
     </pickup-availability>
 
-    <script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/pickup-availability.js?v=66138958121968076331701595477" defer="defer"></script></div>
+    <script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/pickup-availability.js?v=66138958121968076331701696095" defer="defer"></script></div>
 <div class="product__description rte quick-add-hidden" >
-                  <p>Hadirnya akun slot demo zeus pada saat ini sangat membantu para sloter mania dalam bermain karena sudah terbukti gratis dan 4 juta member terdaftar.</p>
-<p><a href="https://serang.ut.ac.id/absen/upload/shop/" title="Slot Gacor"><img alt="Slot Gacor" src="https://cdn.shopify.com/s/files/1/0847/6930/8976/files/3a21eb339d310ca7f35d292cfff8f5d6.gif?v=1701595531"></a></p>
+                  <p>Kami adalah lapak gaming live yang terpercaya pada saat ini karena situs casino online yang diberikan sangatlah terjamin &amp; aman di tahun 2023 maka para bettor mania banyak join.</p>
+<p><a href="https://xyz77.website/" title="Live Games"><img alt="Live Games" src="https://cdn.shopify.com/s/files/1/0671/9737/0595/files/bt-register.gif?v=1701696238"></a></p>
                 </div>
               
-<script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/share.js?v=13024540447964430191701595477" defer="defer"></script>
+<script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/share.js?v=13024540447964430191701696096" defer="defer"></script>
 
-<share-button id="Share-template--21771417780528__main" class="share-button quick-add-hidden" >
+<share-button id="Share-template--16968287125731__main" class="share-button quick-add-hidden" >
   <button class="share-button__button hidden">
     <svg
   width="13"
@@ -1822,7 +1822,7 @@ for (var attr in meta) {
 
     Share
   </button>
-  <details id="Details-share-template--21771417780528__main">
+  <details id="Details-share-template--16968287125731__main">
     <summary class="share-button__button">
       <svg
   width="13"
@@ -1843,17 +1843,17 @@ for (var attr in meta) {
     </summary>
     <div class="share-button__fallback motion-reduce">
       <div class="field">
-        <span id="ShareMessage-template--21771417780528__main" class="share-button__message hidden" role="status"> </span>
+        <span id="ShareMessage-template--16968287125731__main" class="share-button__message hidden" role="status"> </span>
         <input
           type="text"
           class="field__input"
-          id="ShareUrl-template--21771417780528__main"
-          value="http://psikologi.unbi.ac.id/uploads/img/"
+          id="ShareUrl-template--16968287125731__main"
+          value="https://casino.online.stoelzle-lausitz.com/products/lapak-gaming"
           placeholder="Link"
           onclick="this.select();"
           readonly
         >
-        <label class="field__label" for="ShareUrl-template--21771417780528__main">Link</label>
+        <label class="field__label" for="ShareUrl-template--16968287125731__main">Link</label>
       </div>
       <button class="share-button__close hidden no-js-hidden">
         <svg
@@ -1889,7 +1889,7 @@ for (var attr in meta) {
   </details>
 </share-button>
 
-<a href="/products/akun-slot" class="link product__view-details animate-arrow">
+<a href="/products/lapak-gaming" class="link product__view-details animate-arrow">
           View full details
           <svg
   viewBox="0 0 14 10"
@@ -1908,16 +1908,16 @@ for (var attr in meta) {
 
   
 
-<product-modal id="ProductModal-template--21771417780528__main" class="product-media-modal media-modal">
+<product-modal id="ProductModal-template--16968287125731__main" class="product-media-modal media-modal">
   <div
-    class="product-media-modal__dialog color-inverse gradient"
+    class="product-media-modal__dialog color-background-1 gradient"
     role="dialog"
     aria-label="Media gallery"
     aria-modal="true"
     tabindex="-1"
   >
     <button
-      id="ModalClose-template--21771417780528__main"
+      id="ModalClose-template--16968287125731__main"
       type="button"
       class="product-media-modal__toggle"
       aria-label="Close"
@@ -1936,29 +1936,29 @@ for (var attr in meta) {
     </button>
 
     <div
-      class="product-media-modal__content color-inverse gradient"
+      class="product-media-modal__content color-background-1 gradient"
       role="document"
       aria-label="Media gallery"
       tabindex="0"
     >
 <img
     class="global-media-settings global-media-settings--no-shadow"
-    srcset="//daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&width=550 550w,//daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&width=1100 1100w,//daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575 1280w"
+    srcset="//casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351 290w"
     sizes="(min-width: 750px) calc(100vw - 22rem), 1100px"
-    src="//daftar-member.lundhumphries.com/cdn/shop/files/banner-slot-gacor.jpg?v=1701595575&width=1445"
-    alt="Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar"
+    src="//casino.online.stoelzle-lausitz.com/cdn/shop/files/casinoasli.jpg?v=1701696351&width=1445"
+    alt="Lapak Gaming Live Games Situs Casino Online Terpercaya 2023"
     loading="lazy"
     width="1100"
-    height="619"
-    data-media-id="35906424111408"
+    height="660"
+    data-media-id="33091198615779"
   ></div>
   </div>
 </product-modal>
 
 
   
-<script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/product-modal.js?v=116616134454508949461701595477" defer="defer"></script>
-    <script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/media-gallery.js?v=96661908581229995091701595477" defer="defer"></script><script>
+<script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/product-modal.js?v=116616134454508949461701696095" defer="defer"></script>
+    <script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/media-gallery.js?v=96661908581229995091701696095" defer="defer"></script><script>
     document.addEventListener('DOMContentLoaded', function () {
       function isIE() {
         const ua = window.navigator.userAgent;
@@ -1969,17 +1969,17 @@ for (var attr in meta) {
       }
 
       if (!isIE()) return;
-      const hiddenInput = document.querySelector('#product-form-template--21771417780528__main input[name="id"]');
+      const hiddenInput = document.querySelector('#product-form-template--16968287125731__main input[name="id"]');
       const noScriptInputWrapper = document.createElement('div');
       const variantSwitcher =
-        document.querySelector('variant-radios[data-section="template--21771417780528__main"]') ||
-        document.querySelector('variant-selects[data-section="template--21771417780528__main"]');
+        document.querySelector('variant-radios[data-section="template--16968287125731__main"]') ||
+        document.querySelector('variant-selects[data-section="template--16968287125731__main"]');
       noScriptInputWrapper.innerHTML = document.querySelector(
-        '.product-form__noscript-wrapper-template--21771417780528__main'
+        '.product-form__noscript-wrapper-template--16968287125731__main'
       ).textContent;
       variantSwitcher.outerHTML = noScriptInputWrapper.outerHTML;
 
-      document.querySelector('#Variants-template--21771417780528__main').addEventListener('change', function (event) {
+      document.querySelector('#Variants-template--16968287125731__main').addEventListener('change', function (event) {
         hiddenInput.value = event.currentTarget.value;
       });
     });
@@ -1987,22 +1987,22 @@ for (var attr in meta) {
     {
       "@context": "http://schema.org/",
       "@type": "Product",
-      "name": "Akun Slot Demo Zeus Pragmatic Play Gratis 4,711,820 Member Terdaftar",
-      "url": "http:\/\/psikologi.unbi.ac.id\/uploads\/img",
+      "name": "Lapak Gaming Live Games Situs Casino Online Terpercaya 2023",
+      "url": "https:\/\/wonosobo.bawaslu.go.id\/modules\/sales",
       "image": [
-          "https:\/\/daftar-member.lundhumphries.com\/cdn\/shop\/files\/banner-slot-gacor.jpg?v=1701595575\u0026width=1920"
+          "https:\/\/casino.online.stoelzle-lausitz.com\/cdn\/shop\/files\/casinoasli.jpg?v=1701696351\u0026width=1920"
         ],
-      "description": "Hadirnya akun slot demo zeus pada saat ini sangat membantu para sloter mania dalam bermain karena sudah terbukti gratis dan 4 juta member terdaftar.\n",
+      "description": "Kami adalah lapak gaming live yang terpercaya pada saat ini karena situs casino online yang diberikan sangatlah terjamin \u0026amp; aman di tahun 2023 maka para bettor mania banyak join.\n",
       
       "brand": {
         "@type": "Brand",
-        "name": "SLOT DEMO GRATIS"
+        "name": "LIVE GAMES"
       },
       "offers": [{
             "@type" : "Offer","availability" : "http://schema.org/OutOfStock",
-            "price" : 17500.0,
+            "price" : 15000.0,
             "priceCurrency" : "IDR",
-            "url" : "http:\/\/psikologi.unbi.ac.id\/uploads\/img?variant=47220057440560"
+            "url" : "https:\/\/wonosobo.bawaslu.go.id\/modules\/sales?variant=44186588020963"
           }
 ]
     }
@@ -2011,24 +2011,24 @@ for (var attr in meta) {
 </section>
 
 
-</section><section id="shopify-section-template--21771417780528__related-products" class="shopify-section section"><link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-card.css?v=47260860684073105921701595475" rel="stylesheet" type="text/css" media="all" />
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-price.css?v=70172745017360139101701595476" rel="stylesheet" type="text/css" media="all" />
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/section-related-products.css?v=80324771040738084201701595477" rel="stylesheet" type="text/css" media="all" />
+</section><section id="shopify-section-template--16968287125731__related-products" class="shopify-section section"><link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-card.css?v=47260860684073105921701696094" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-price.css?v=70172745017360139101701696094" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/section-related-products.css?v=80324771040738084201701696096" rel="stylesheet" type="text/css" media="all" />
 
-<style data-shopify>.section-template--21771417780528__related-products-padding {
+<style data-shopify>.section-template--16968287125731__related-products-padding {
     padding-top: 0px;
     padding-bottom: 45px;
   }
 
   @media screen and (min-width: 750px) {
-    .section-template--21771417780528__related-products-padding {
+    .section-template--16968287125731__related-products-padding {
       padding-top: 0px;
       padding-bottom: 60px;
     }
-  }</style><div class="color-accent-2 gradient no-js-hidden">
+  }</style><div class="color-background-1 gradient no-js-hidden">
   <product-recommendations
-    class="related-products page-width section-template--21771417780528__related-products-padding isolate scroll-trigger animate--slide-in"
-    data-url="/recommendations/products?section_id=template--21771417780528__related-products&product_id=8864088490288&limit=4"
+    class="related-products page-width section-template--16968287125731__related-products-padding isolate scroll-trigger animate--slide-in"
+    data-url="/recommendations/products?section_id=template--16968287125731__related-products&product_id=8216329781475&limit=4"
   >
     
   </product-recommendations>
@@ -2039,20 +2039,20 @@ for (var attr in meta) {
     </main>
 
     <!-- BEGIN sections: footer-group -->
-<section id="shopify-section-sections--21771418239280__newsletter" class="shopify-section shopify-section-group-footer-group section"><link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-newsletter.css?v=4727253280200485261701595476" rel="stylesheet" type="text/css" media="all" />
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/newsletter-section.css?v=62410470717655853621701595477" rel="stylesheet" type="text/css" media="all" />
-<style data-shopify>.section-sections--21771418239280__newsletter-padding {
+<section id="shopify-section-sections--16968287420643__newsletter" class="shopify-section shopify-section-group-footer-group section"><link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-newsletter.css?v=4727253280200485261701696094" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/newsletter-section.css?v=62410470717655853621701696095" rel="stylesheet" type="text/css" media="all" />
+<style data-shopify>.section-sections--16968287420643__newsletter-padding {
     padding-top: 21px;
     padding-bottom: 0px;
   }
 
   @media screen and (min-width: 750px) {
-    .section-sections--21771418239280__newsletter-padding {
+    .section-sections--16968287420643__newsletter-padding {
       padding-top: 28px;
       padding-bottom: 0px;
     }
   }</style><div class="newsletter center ">
-  <div class="newsletter__wrapper color-inverse gradient content-container isolate content-container--full-width section-sections--21771418239280__newsletter-padding"><h2
+  <div class="newsletter__wrapper color-inverse gradient content-container isolate content-container--full-width section-sections--16968287420643__newsletter-padding"><h2
             class="inline-richtext h1 scroll-trigger animate--slide-in"
             
             
@@ -2082,7 +2082,7 @@ for (var attr in meta) {
               >
                 <div class="field">
                   <input
-                    id="NewsletterForm--sections--21771418239280__newsletter"
+                    id="NewsletterForm--sections--16968287420643__newsletter"
                     type="email"
                     name="contact[email]"
                     class="field__input"
@@ -2095,7 +2095,7 @@ for (var attr in meta) {
                     placeholder="Email"
                     required
                   >
-                  <label class="field__label" for="NewsletterForm--sections--21771418239280__newsletter">
+                  <label class="field__label" for="NewsletterForm--sections--16968287420643__newsletter">
                     Email
                   </label>
                   <button
@@ -2122,17 +2122,17 @@ for (var attr in meta) {
 </div>
 
 
-</section><div id="shopify-section-sections--21771418239280__footer" class="shopify-section shopify-section-group-footer-group">
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/section-footer.css?v=125160298726032154631701595477" rel="stylesheet" type="text/css" media="all" />
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-newsletter.css?v=4727253280200485261701595476" rel="stylesheet" type="text/css" media="all" />
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-list-menu.css?v=151968516119678728991701595476" rel="stylesheet" type="text/css" media="all" />
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-list-payment.css?v=69253961410771838501701595476" rel="stylesheet" type="text/css" media="all" />
-<link href="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/component-list-social.css?v=35792976012981934991701595476" rel="stylesheet" type="text/css" media="all" />
+</section><div id="shopify-section-sections--16968287420643__footer" class="shopify-section shopify-section-group-footer-group">
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/section-footer.css?v=125160298726032154631701696096" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-newsletter.css?v=4727253280200485261701696094" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-list-menu.css?v=151968516119678728991701696094" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-list-payment.css?v=69253961410771838501701696094" rel="stylesheet" type="text/css" media="all" />
+<link href="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/component-list-social.css?v=35792976012981934991701696094" rel="stylesheet" type="text/css" media="all" />
 <style data-shopify>.footer {
     margin-top: 0px;
   }
 
-  .section-sections--21771418239280__footer-padding {
+  .section-sections--16968287420643__footer-padding {
     padding-top: 33px;
     padding-bottom: 45px;
   }
@@ -2142,11 +2142,11 @@ for (var attr in meta) {
       margin-top: 0px;
     }
 
-    .section-sections--21771418239280__footer-padding {
+    .section-sections--16968287420643__footer-padding {
       padding-top: 44px;
       padding-bottom: 60px;
     }
-  }</style><footer class="footer color-inverse gradient section-sections--21771418239280__footer-padding"><div class="footer__content-top page-width"><div
+  }</style><footer class="footer color-inverse gradient section-sections--16968287420643__footer-padding"><div class="footer__content-top page-width"><div
           class="footer-block--newsletter scroll-trigger animate--slide-in"
           
             data-cascade
@@ -2168,7 +2168,7 @@ for (var attr in meta) {
     <div class="footer__content-bottom-wrapper page-width">
       <div class="footer__copyright caption">
         <small class="copyright__content"
-          >&copy; 2023, <a href="/" title="">SLOT DEMO GRATIS</a></small>
+          >&copy; 2023, <a href="/" title="">LIVE GAMES</a></small>
         <small class="copyright__content"><a target="_blank" rel="nofollow" href="https://www.shopify.com?utm_campaign=poweredby&amp;utm_medium=shopify&amp;utm_source=onlinestore">Powered by Shopify</a></small></div>
     </div>
   </div>
@@ -2184,7 +2184,7 @@ for (var attr in meta) {
     </ul>
 
     <script>
-      window.shopUrl = 'https://daftar-member.lundhumphries.com';
+      window.shopUrl = 'https://casino.online.stoelzle-lausitz.com';
       window.routes = {
         cart_add_url: '/cart/add',
         cart_change_url: '/cart/change',
@@ -2222,5 +2222,5 @@ for (var attr in meta) {
         recipientFormExpanded: `Gift card recipient form expanded`,
         recipientFormCollapsed: `Gift card recipient form collapsed`,
       };
-    </script><script src="//daftar-member.lundhumphries.com/cdn/shop/t/2/assets/predictive-search.js?v=162273246065392412141701595477" defer="defer"></script></body>
+    </script><script src="//casino.online.stoelzle-lausitz.com/cdn/shop/t/2/assets/predictive-search.js?v=162273246065392412141701696095" defer="defer"></script></body>
 </html>
